@@ -1,1 +1,1 @@
-# ThomaKust.github.ru
+# ThomaKust.github.com
